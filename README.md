@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on emulation, hacks...
 - 📫 How to reach me: joao__silveira@hotmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: looking for some skirt.. joke
+- ⚡ Fun fact: looking for some knowleadge
 
 <!---
 joaosilveira89/joaosilveira89 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
