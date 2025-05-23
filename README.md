@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tecnology, Social/Network and Games
 - 🌱 I’m currently learning 1984, and all..
 - 💞️ I’m looking to collaborate on emulation, hacks...
-- 📫 How to reach me: joao__silveira@hotmail.com
+- 📫 How to reach me: joaoaguia89@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: looking for some knowleadge
 
